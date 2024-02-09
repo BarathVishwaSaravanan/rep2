@@ -5,3 +5,4 @@
 - 📫 You can reach me through email===>svbarath@karunya.edu.in
 - 😄 he/him
 - ⚡ gym rat
+according to newtons third law for every action there will be opposite and equal reaction
