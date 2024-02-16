@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BarathVishwaSaravanan
+- 👋 Hi, I’m @BarathVishwa
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning btech cse
 - 💞️ I’m looking to collaborate on software companies
